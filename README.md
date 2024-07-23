@@ -1,0 +1,1 @@
+# Just beyond simple lvl 1 fishing till 20
